@@ -11,3 +11,9 @@ This group will focus on themes like the following:
 - Building sustainable and resilliant community outside of capitalist/consumption models
 - Participation in direct/collective action, especially in service of these goals.
 - Thinking through and planning for radical change to make more than step-wise improvement in the status quo.
+
+
+# Resources we can connect you with
+- Some medication including antibiotics
+- A workshop that offers woodworking and metalworking tools.
+- Gardening advice
